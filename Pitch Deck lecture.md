@@ -1,4 +1,4 @@
-Based on the Create Apps Championship Pitch Guide you provided, here is a competitive, high-performance lecture designed to prepare a team to win.
+
 
 ***
 
