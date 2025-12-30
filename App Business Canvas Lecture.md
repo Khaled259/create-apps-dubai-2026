@@ -91,6 +91,7 @@ Fill this canvas out. Argue about it with your team. Pivot until it hurts. Becau
 
 **Now, get to work.**
 
+<img width="1290" height="857" alt="image" src="https://github.com/user-attachments/assets/b6114fd8-4070-4def-8825-e4edb212c814" />
 
 
 
